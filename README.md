@@ -1,5 +1,5 @@
 use it for sucational purpose 
-i dont responsible for what happend for anyone 
+i dont responsible for what happend to anyone 
 
 the method 
 1.git clone https://github.com/cyberninja010/cyberninja010.git
@@ -21,6 +21,8 @@ BE WARNING WHEN YOU USE TROJAN MALWARE (trojan.exe) it will be harm your device
 malicious>>>
 https://github.com/MapleHackersoff/Hoic/raw/refs/heads/master/Hoic.rar
 https://readbeam.site/b0dr65gg5v/daniel-w-dieterle/tactical-wireless-security?source=issuu-
+googe.com(best virus) goog.com http://account.st/ http://account.co/ instagram.co irstagram.com intagram.com googie.com godady.com not godaddy.com(orginal site)   rnicrosoft.com(best virus) aple.com appie.com(good) virustutal.com  yotube.com(best) wndows.com
+facbook.com  facebook.com   
 
 https://momot.rs/d3/y/1751114503/10000/g4/libgenrs_nonfiction/libgenrs_nonfiction/54000/1b4d7b43a50b292e1b8c3df8497902c8~/zfHZpwaRAndnk15C4SQOUQ/Hacking%20exposed%20wireless%20%3A%20wireless%20security%20secrets%20%26%20--%20Johnny%20Cache%2C%20Vincent%20Liu%20--%201%20edition%2C%20March%2026%2C%202007%20--%20McGraw-Hill%20Osborne%20Media%3B%20--%209780071070911%20--%201b4d7b43a50b292e1b8c3df8497902c8%20--%20Anna%E2%80%99s%20Archive.chm
 
@@ -84,3 +86,6 @@ black hat viddeo (39 G)
 121.https://ia800203.us.archive.org/20/items/blackhat2010usavideo/10_bhb_wd4.mp4 122.https://ia800203.us.archive.org/20/items/blackhat2010usavideo/10_bhb_wd5.mp4
 123.https://archive.org/download/blackhat2010usavideo/__ia_thumb.jpg 124.https://archive.org/download/blackhat2010usavideo/blackhat2010usavideo_archive.torrent
 125.https://archive.org/download/blackhat2010usavideo/blackhat2010usavideo_files.xml126.https://archive.org/download/blackhat2010usavideo/blackhat2010usavideo_meta.xml 127.https://archive.org/download/blackhat2010usavideo/sessionlisting.pdf 128.https://archive.org/download/blackhat2010usavideo/sessionlisting_jp2.zip
+
+
+warning 
